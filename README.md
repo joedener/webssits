@@ -3,13 +3,8 @@ webg ite
 
 ------
 
-poxy: crazyschoolunblockers.github.io
--
-big unblockers (very cool)
- 
 rangom shit: rangomhitters.github.io
 -
-
 random webgite..tes  i found
  
 gamesgh:  hotgamesforyou.github.io
