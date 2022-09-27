@@ -2,8 +2,11 @@
 webg ite
 
 ------
+my stuffgg:
+-
+webkites i made !!! (vist this one now)
 
-rangom shit: rangomhitters.github.io
+rangom shit: [joedener.github.io/blandshit](https://joedener.github.io/blandshit/)
 -
 random webgite..tes  i found
  
